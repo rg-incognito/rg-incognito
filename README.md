@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **rohitgande0705@gmail.com**
 
-- ⚡ Fun fact **I can tell jokes with saying a word**
+- ⚡ Fun fact **I can tell jokes without saying a word**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
