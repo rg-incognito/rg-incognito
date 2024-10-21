@@ -1,5 +1,5 @@
 # 💫 About Me:
-✨Currently working on android UI library.✨<br>✨Also looking for collaboration with it.✨<br>👉I am learning about AWS cloud for Java👈<br>💭Ask me anything about Data Structure and Algorithm 💭<br>>>>> Fun Fact about me:  Always on vocation <<<<<br>
+✨Currently working on android UI library.✨<br>✨Also looking for collaboration with it.✨<br>👉I am learning about AWS cloud for Java👈<br>💭Ask me anything about Data Structure and Algorithm
 
 
 ## 🌐 Socials:
